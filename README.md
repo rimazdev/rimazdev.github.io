@@ -1,1 +1,0 @@
-# rimazdev.github.io
